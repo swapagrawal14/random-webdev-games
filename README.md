@@ -2,6 +2,11 @@
 Created random games through different sites, update my this repo with each new game I'll make
 
 
+F1 race 👇
+
+https://01a0733c-d2c6-7cf7-b5fb-6cdc5d898908.arena.site/
+
+
 Dental Game 1 👇
 
 https://01a00679-e910-710f-b962-8ee915996108.arena.site/
