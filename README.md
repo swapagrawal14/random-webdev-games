@@ -51,6 +51,20 @@ https://01a0ca6e-05c6-7389-9af6-48d102b224f3.arena.site/
 
 
 
+Naraka Game as per garud purad ft LM ARENA 👇
+
+https://01a0e85a-5338-79ef-9512-b73c7a1e025e.arena.site/
+
+
+
+Naraka Game as per garud purad ft Lovable 👇
+
+https://garuda-punishment-saga.lovable.app/
+
+
+
+
+
 Don't Whack your Plumber 👇
 
 https://01a0cec1-1bb3-735d-b49e-19897e6fb1f9.arena.site/
